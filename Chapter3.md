@@ -26,7 +26,7 @@ more empathy for his situation.  Doctor Emile focuses less on published methods.
 
 Houston is about to protest, but Rachael holds up a hand. Houston drops the reports in one of the chairs facing Rachael's desk and sits in the other.
 
-"That's not to say there's anything wrong with your method, Doctor Houston. As I said, sometimes people just don't click. You're doing a wonderful job with many of your patients. George adores you. Says your the best therapist he's had."
+"That's not to say there's anything wrong with your method, Doctor Houston. As I said, sometimes people just don't click. You're doing a wonderful job with many of your patients. George adores you. Says you're the best therapist he's had."
 
 Houston snorts, "George's been here two years and still can't wear clothing for more than five minutes at a time. What has my method done for him?" He sighs and picks up the reports. He rises to walk out of the office. turning back to Rachael, "Please don't tell him I was here."
 
