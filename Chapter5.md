@@ -62,7 +62,7 @@ Holly lets out a little laugh, "I think I can help you with that."
 
 "Oh please do. How?"
 
-"Well, I can't be sure, but Miss Taylor, Mr. Elton and Harriet are all characters from Emma."
+"Well, I can't be sure, but Miss Taylor, Mr. Elton and Harriet are all from Emma."
 
 Houston looks at her quizzically. Emma, like from my dream? How could she know that?
 
