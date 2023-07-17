@@ -18,7 +18,7 @@ Ashford shakes his head, "I don't think that is your call anymore. Anna's sister
 
 Houston sighs and walks out of the office. He's sitting at his own desk when there is a knock at the door. "Come in."
 
-Janice opens the door. Houston stands and goes to her. "Janice. I'm so glad you came to see me. Are you feeling better? You know that Anna only talks nonsense. She wasn't making a remark about you. Janice sits down in a chair. Houston follows suit."
+Janice opens the door. Houston stands and goes to her. "Janice. I'm so glad you came to see me. Are you feeling better? You know that Anna only talks nonsense. She wasn't making a remark about you." Janice sits down in a chair. Houston follows suit.
 
 Janice gives a sad smile to Houston, "Did you know that I used to be beautiful?"
 
